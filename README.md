@@ -7,11 +7,6 @@
 - 😄PT- Adoro Java e JavaScript, e muito afim de conhecer mais linguagens.
 - 😄EN- I love Java and JavaScrpt, and very keen to know more languages.
 
-- 📫PT- Como chegar até mim.
-- 📫EN- How to reach me.
-- Intragram - @j.c_bitencourt
-- Twitter - @J_Carolos_
-
 -⚡PT- Curiosidades: Adoro video games, Xbox e playstation, tenho dois cachorros e um gato, sou bastante curioso com relação a tecnologia, sempre buscando conhecer cada vez mais sobre esse mundo. 
 
 -⚡EN- Fun fact: I love video games, Xbox and playstation, I have two dogs and a cat, I'm very curious about technology, always looking to know more and more about this world.
